@@ -1,1 +1,1 @@
-Apparently we are going to build a telescope!
+Apparently we are going to build a new instrument!
